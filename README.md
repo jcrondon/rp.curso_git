@@ -3,8 +3,6 @@
 Este proyecto se encarga de manejar los planes de la liga de la justicia
 
 
-## Notas
-Pueden hacer lo que quieran...
+## Cambios nuevos
 
-### Editado en GITHUB
-El fichero fue editado en GITHUB!!!
+bd hbh cjhkbejk vbajukvbeuvhe iovfheivkej vioeghvuoe vileveukvbeveiuoveuivjebn vjkb iubjke vbsjib iybkhseb j bjhb hj,sjkhb jh bkhb hkbv khb skhbhk b kbhbdhjk bkhzbhl bhjk. brhbjk bkjhb khl,rb kjrbskjbrkj bkh brsdkjhbrjkh.
